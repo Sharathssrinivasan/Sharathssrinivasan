@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Sharathssrinivasan
+- 👋 Hi, I’m Sharath Srinivasan.
 - 👀 I’m a Techical Writer. Interested to write in softwares and web pages. 
 - 🌱 I’m currently learning all possible tools that makes me a freelancer Such as Frame maker, Githhub, Snagit.
 - 💞️ I’m looking to collaborate with reputed firms to improve and apply my skills.
